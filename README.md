@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there/ Здравейте 👋
 
 ## Welcome to my business account!
 
